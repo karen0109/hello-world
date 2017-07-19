@@ -6,4 +6,5 @@ My name is Karen
 And I'm super hot
 But I got a husband 
 So get fuck out of my place
-I love my husband;
+I love my husband
+i want to be better;
